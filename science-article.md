@@ -1,1 +1,1 @@
-This is a science article added by me. 
+This is a collaborative science article about advancements in green energy.
